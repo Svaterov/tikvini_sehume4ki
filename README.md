@@ -1,1 +1,0 @@
-# tikvini_sehume4ki
